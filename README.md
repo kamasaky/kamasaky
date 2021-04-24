@@ -4,15 +4,7 @@
 
 My name is Kambar Mirmanov
 
-
-
-
-
-
-_/﹋\_
-(҂`_´)
-<,︻╦╤─ ҉ - -
-_/﹋\_
+(≧∇≦)/
 
 
 
@@ -31,6 +23,6 @@ _/﹋\_
 
 
 
-I am from Almaty, Kazakhstan and currently studing at Sunway Univeristy, Malaysia 🏫.I learn very fast and passionate about exploring new things!Also love emojis as you probably have already noticed..
+I am from Almaty, Kazakhstan:mountain_railway: and currently studing at Sunway Univeristy, Malaysia 🏫.I learn very fast and passionate about exploring new things!Also love emojis as you probably have already noticed..( ͡─ ͜ʖ ͡─) 👉
 
 
